@@ -50,6 +50,6 @@
 
 [![](https://visitcount.itsvg.in/api?id=ikomo007&icon=5&color=6)](https://visitcount.itsvg.in)
 
-# 🌩️ s i m o n | U z o d i n m a
+# 🌩️ **Ikechukwu Simon Uzodinma**
 “Automate all the things, except coffee. That stays manual.”
 
