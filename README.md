@@ -103,5 +103,5 @@
 [![](https://visitcount.itsvg.in/api?id=ikomo007&icon=5&color=6)](https://visitcount.itsvg.in)
 
 # 🌩️ **Ikechukwu Simon Uzodinma**
-“Automate all the things, except coffee. That stays manual.”
+“Automate all the things, except coffee and pancake. That stays manual.”
 
